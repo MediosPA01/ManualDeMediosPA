@@ -14,4 +14,7 @@ En el Departamento de Medios existen pocas normas, sin embargo, eso no quiere de
     * En algunas ocasiones, hermanos que no forman parte del área han subido e incluso manipulado el equipo.
 * Para servir se deberá utilizar la vestimenta adecuada.
   * Hasta que contemos con uniforme del Departamento, la vestimenta es pantalón de lona (no apretado) y camisa / playera.
-* 
+* Si se fue programado pero no podrá asistir al servicio por alguna circunstancia, se debe buscar y hablar con algún hermano del departamento que no haya sido programado para que cubra el área.
+ * Cuando se encuentra quien cubra, se debe avisar al diácono del Departamento sobre esto.
+* El uso del teléfono es restringido.
+ * 
