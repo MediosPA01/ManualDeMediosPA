@@ -2,7 +2,7 @@
 *Entren por sus puertas con acción de gracias, por sus atrios con alabanza. Denle gracias; bendigan su nombre porque el SEÑOR es bueno. Para siempre es su misericordia, y su fidelidad por todas las generaciones.
 Salmo 100:4-5*
 
-En el Departamento de Medios existen pocas normas, sin embargo, eso no quiere decir que no les prestemos la atención necesaria o que no las cumplamos a cabalidad.
+Nuestro privilegio inicia desde antes que empiece el servicio. 
 
 # NORMATIVAS
 * Sólo subir Hnos programados con privilegio.
