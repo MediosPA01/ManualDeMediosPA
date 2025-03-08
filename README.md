@@ -1,3 +1,3 @@
 <div align="center">
-<strong>📖 Manual de uso y solución de problemas para los equipos de transmisión en vivo de Iglesia Puertas Abiertas</strong>
+<strong>📖 MANUAL DE USO Y SOLUCIÓN DE PROBLEMAS PARA LOS EQUIPOS DE TRANSMISIÓN EN VIVO DE IGLESIA PUERTAS ABIERTAS</strong>
 </div>
