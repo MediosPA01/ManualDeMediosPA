@@ -1,6 +1,4 @@
 # 📖 Capítulo 1: NORMATIVAS
-*Normas y Reglas a Seguir durante el Servicio*
-
 *Obedezcan a sus dirigentes y sométanse a ellos, pues cuidan de ustedes como quienes tienen que rendir cuentas. Obedézcanlos a fin de que ellos cumplan su tarea con alegría y sin quejarse, pues el quejarse no les trae ningún provecho.
 Heb 13:17*
 
@@ -20,6 +18,7 @@ En el Departamento de Medios existen pocas normas, sin embargo, eso no quiere de
   * El usar el teléfono mientras se sirve lleva a distracciones y que no cumplamos el servicio de forma correcta (sea cuando se necesita cambiar una toma, mostrar la presentación en la transmisión, seguir con la cámara a quién predica).
     * A menos que sea necesario, como para compartir la transmisión o revisar el audio, el uso del teléfono está restringido.
 * Al finalizar el servicio, se debe recoger la basura y depositarla en los botes de abajo.
+
 
 *Si algo demanda diligencia, no seamos perezosos; sirvamos al Señor con espíritu ferviente.
 Romanos 12:11*
