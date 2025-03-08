@@ -1,1 +1,2 @@
-# 📖 MANUAL DE USO Y SOLUCIÓN DE PROBLEMAS PARA LOS EQUIPOS DE TRANSMISIÓN EN VIVO DE IGLESIA PUERTAS ABIERTAS
+# 📖 MANUAL DE MEDIOS PUERTAS ABIERTAS
+*Manual de Uso y Solución de Problemas para los Equipos de Transmisión en Vivo de Iglesia Puertas Abiertas Huehuetango*
